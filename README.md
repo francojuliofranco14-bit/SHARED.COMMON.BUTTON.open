@@ -1,1 +1,1 @@
-# <aherf=https://luckyslot.spin365day.com 
+# <aherf/=https://luckyslot.spin365day.com 
